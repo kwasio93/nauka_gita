@@ -1,1 +1,1 @@
-# WSB
+# lubiem WSB
